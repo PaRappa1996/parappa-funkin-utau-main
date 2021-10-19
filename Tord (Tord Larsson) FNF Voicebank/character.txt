@@ -1,0 +1,2 @@
+name=Tord Larsson
+image=image.bmp
