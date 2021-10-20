@@ -31,3 +31,5 @@ Ron by Wildy
 Tordbot by bbpanzu
 
 Mickey Mouse by Disney
+
+Mario by Nintendo (voiced by 5onik101)
