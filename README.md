@@ -1,4 +1,4 @@
-Credits from the Original Creators for the UTAUS
+Original Creators for the UTAUS
 
 
 
