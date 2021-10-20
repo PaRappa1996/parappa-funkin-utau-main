@@ -20,7 +20,7 @@ Matt (vs. Matt Eddsworld) by nxbellion
 
 Jenny Wakeman By Nickelodeon
 
-Twilight Sparkle, Rainbow dash, Applejack, Fluttershy, Rarity, Pinkie Pie, Starlight Glimmer, Sunset shimmer and Spike by Hasbro
+Twilight Sparkle, Rainbow dash, Applejack, Fluttershy, Rarity, Pinkie Pie, Starlight Glimmer, Sunset shimmer, Discord and Spike by Hasbro
 
 9-Volt by Nintendo
 
