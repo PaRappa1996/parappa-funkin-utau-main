@@ -35,3 +35,5 @@ Mickey Mouse by Disney
 Mario by Nintendo (voiced by 5onik101)
 
 Selever by Mike geno
+
+Labrat by Novatos Team 2 (OFFICIAL) [ §°Ulkarizers°§ ]
