@@ -20,7 +20,7 @@ Matt (vs. Matt Eddsworld) by nxbellion
 
 Jenny Wakeman By Nickelodeon
 
-Twilight Sparkle, Rainbow dash, Applejack, Fluttershy, Rarity, Pinkie Pie, Starlight Glimmer, Sunset shimmer, Discord, Spike, Celestia and Luna by Hasbro
+Twilight Sparkle, Rainbow dash, Applejack, Fluttershy, Rarity, Pinkie Pie, Starlight Glimmer, Sunset shimmer, Discord, Spike, Celestia and Luna by Lauren Faust
 
 9-Volt by Nintendo
 
@@ -32,8 +32,10 @@ Tordbot by bbpanzu
 
 Mickey Mouse by Disney
 
-Mario by Nintendo (voiced by 5onik101)
+Mario by Shigeru Miyamoto (voiced by 5onik101)
 
 Selever by Mike geno
 
 Labrat by Novatos Team 2 (OFFICIAL) [ §°Ulkarizers°§ ]
+
+Spongebob By Stephen hillenburg
