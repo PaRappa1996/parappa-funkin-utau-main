@@ -14,6 +14,8 @@ Sonic in FNF HD by KOLSAN
 
 Boyfriend, Girlfriend and Pico by KawaiiSprite
 
+Soft Boyfriend by Tama
+
 RetroSpecter and Sakuroma by RetroSpecter
 
 Matt (vs. Matt Eddsworld) by nxbellion
