@@ -34,10 +34,10 @@ Tordbot by bbpanzu
 
 Mickey Mouse by Disney
 
-Mario by Shigeru Miyamoto (voiced by 5onik101)
+Mario and Luigi by Shigeru Miyamoto (Mario voiced by 5onik101, Luigi Voiced by Charles Martinet)
 
 Selever by Mike geno
 
 Labrat by Novatos Team 2 (OFFICIAL) [ §°Ulkarizers°§ ]
 
-Spongebob By Stephen hillenburg
+Spongebob and Patrick By Stephen hillenburg
