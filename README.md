@@ -2,7 +2,7 @@ Original Creators for the UTAUS
 
 
 
-Sonic, Tails, Knuckles and Shadow by SEGA
+Sonic, Tails, Knuckles, Shadow and Eggman by SEGA
 
 Edd, Tom, Matt and Tord by Eddsworld
 
