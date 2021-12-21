@@ -34,7 +34,7 @@ Tordbot by bbpanzu
 
 Mickey Mouse by Disney
 
-Mario and Luigi by Shigeru Miyamoto (Mario voiced by 5onik101, Luigi Voiced by Charles Martinet)
+Mario and Luigi by Shigeru Miyamoto
 
 Selever by Mike geno
 
