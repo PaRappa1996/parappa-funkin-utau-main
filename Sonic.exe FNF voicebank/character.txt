@@ -1,2 +1,0 @@
-name=Sonic.exe
-image=image.bmp
